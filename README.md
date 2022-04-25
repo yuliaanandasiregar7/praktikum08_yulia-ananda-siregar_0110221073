@@ -1,1 +1,0 @@
-# praktikum08_yulia-ananda-siregar_0110221073
